@@ -1,1 +1,1 @@
-# Plagiarism-hyper-connectionsPlagiarism-hyper-connections-others
+# Plagiarism-hyper-connections-others
